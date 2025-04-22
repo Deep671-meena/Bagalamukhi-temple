@@ -1,1 +1,1 @@
-# Bagalamukhi-temple
+# Maa Bagalamukhi-Mandir Nalkheda
